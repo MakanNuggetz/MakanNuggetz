@@ -22,7 +22,7 @@ and i edited all of my videos using Vegas Pro 15 + Flow Vegas Plugin
 ## My Personality
 I'm a chill person, you can tell me jokes, even jokes that road into death threats, but for me.. I just think that as jokes so
 
-i'm not a serious person! but still, don't do death threats kids and also don't too serious
+i'm not a serious person! but still, don't do death threats. Kids, and also don't too serious,
 
 i don't like a serious person, a person that easily get mad while something is changed.
 
